@@ -73,4 +73,4 @@ To configure Help Tooics
   ![Screenshot 2025-01-27 185929](https://github.com/user-attachments/assets/c2f7c836-6b18-4091-adcc-acb1caf080d9)
 
 
-Thank you for reviewing! I hope you enjoyed it as much as I did!
+Thank you for viewing! I hope you enjoyed it as much as did setting it up!
